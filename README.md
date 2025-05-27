@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with (nothing)
 - 💬 Ask me about (whatever is on yout mind)
 - 📫 How to reach me: (arashd216@gmail.com)
-- 😄 Pronouns: duh (idiots)
 - ⚡ Fun fact: my major is biology(wrong pick)
